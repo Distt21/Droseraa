@@ -1,2 +1,0 @@
-# Droseraa
-Ribet banget
